@@ -2,12 +2,12 @@
 ## Produced by Felipe S.
 
 ## This webpage was created to discuss the Bobby, the Bearcat
-### Questions regarding Bobby
+### Questions about Bobby
 - When Bobby was born created?
 - Why bearcat?
 - Why Bobby's apearance is so scary?
 
-### Answers
+### The Answers
 1. Bobby was created and become popular by 1920s.
 2. The Northwest's first mascot was "Mike, the Dog," but Bobby became more popular among the students in 1920s.
 3. Bobby's apearance used to be much cuter on the drawnings, but after Northwest's Art Department created the Bobby's costume, it started to take a different path... (This is my personal option)
