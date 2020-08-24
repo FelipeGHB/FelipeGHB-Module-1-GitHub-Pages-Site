@@ -32,4 +32,3 @@
 ![bobby2000](https://www.nwmissouri.edu/archives/university/bobby/Bobby2007_1.jpg)
 
 #### The all the images and Bobby's information used in this webpage can be found at  https://www.nwmissouri.edu/archives/university/bobby/index.htm
-#### The all the images and Bobby's history can be found at (https://www.nwmissouri.edu/archives/university/bobby/index.htm)
